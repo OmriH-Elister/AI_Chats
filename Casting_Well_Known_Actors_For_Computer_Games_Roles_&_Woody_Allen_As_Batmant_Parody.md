@@ -1818,7 +1818,7 @@ That’s what makes Allen-as-Batman so funny: every single **badass moment or g
 
 ##### You said:
 
-"I dont know about this suit, alfred... I mean, it's too tight... i dont uave the physique fo it... maybe... after a few more sessions in the batgym I could try it on..."
+"I dont know about this suit, alfred... I mean, it's too tight... i dont uave the physique for it... maybe... after a few more sessions in the Batgym I could try it on..."
 
 ###### ChatGPT said:
 
@@ -1845,7 +1845,7 @@ That’s the joy of Woody Allen Batman: every tool of intimidation becomes a set
 
 ##### You said:
 
-"What if there's an attractive female criminal and I'd get arroused? This os definitely not the suit to get arroused in, if you know whaf I mean... she'll get away and I'll be too embarassed to chase her.... it's irresponssible... and if I do chase everyone would laugh and point say, 'look, there goes batman... a grown man chasing a criminal on a roof with an erection'"
+"What if there's an attractive female criminal and I'd get arroused? This is definitely not the suit to get arroused in, if you know whaf I mean... she'll get away and I'll be too embarassed to chase her.... it's irresponssible... and if I do chase everyone would laugh and point, they'd say, 'look, there goes batman... a grown man chasing a criminal on a roof with an erection'"
 
 ###### ChatGPT said:
 
